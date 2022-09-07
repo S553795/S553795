@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about life experiences
 - 📫 How to reach me: S553795@nwmissouri.edu
 - 😄 Pronouns: Him
-- ⚡ Fun fact: you cant count your hair
+- ⚡ Fun fact: you cant count hair
 -->
